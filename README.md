@@ -1,4 +1,4 @@
-# Hi there 👋, I'm Lokesh Venkata Vinay Bhavana
+# Hi👋, I'm Lokesh Venkata Vinay Bhavana
 
 <div align="center">
 
